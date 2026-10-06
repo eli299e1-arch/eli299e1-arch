@@ -18,6 +18,6 @@ Contactame
 - Mi correo: eli299.e1@gmail.com
 - LinkedIn: www.linkedin.com/in/
 elizabeth-m-431311441
--Mi CV bonito:https://canva.link/1gpi5k1uwox72xn 
+-Mi CV bonito:https://canva.link/1gpi5k1uwox72xn
 
 conectando ideas y soluciones 
